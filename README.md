@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CGorhamFF
+- 👀 I’m interested in sandwiches
+- 🌱 I’m currently learning how to make better sandwiches
+- 💞️ I’m looking to collaborate on making sandwiches
+- 📫 How to reach me, throw a sandwich into the air, following it will lead you to me.
